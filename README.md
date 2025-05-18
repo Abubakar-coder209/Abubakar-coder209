@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Abubakar-coder209
-- 👀 I’m interested in games
-- 🌱 I’m currently learning in 10th
-- 💞️ I’m looking to collaborate on tinder
-- 📫 How to reach me plz don't 
+- 👀 I’m interested in:games
+- 🌱 I’m currently learning:in 10th
+- 💞️ I’m looking to collaborate on:tinder
+- 📫 How to reach me:plz don't 
 - 😄 Pronouns:he/him
 - ⚡ Fun fact:i am a human 
 
